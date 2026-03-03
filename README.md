@@ -1,2 +1,2 @@
 # selamalekum
-crackledinmi yoksa ?
+crackledinmi yoksa ? la 😂😂😂😂😂😂😂 sjsjs
